@@ -1,4 +1,4 @@
-### Hi there 👋 - Data Science Enthusiast here - 
+### Hi there 👋 🌎 📊 📈 - Data Science Enthusiast here - 
 
 Here are some ideas to get you started:
 
